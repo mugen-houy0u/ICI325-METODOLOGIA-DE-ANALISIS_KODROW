@@ -11,3 +11,5 @@ Grupo KODROW realizado por: Felipe Castro, Esteban Quinteros, Renato Herrera, Se
 ⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿⣄⠛⢃⣄⠒⢂⣰⣿⣿⣿⣿⣿⣿⣿⣿⣿⣿
 ```
 
+
+"In the world beyond, blackened ichor filled a crumbling sky, as souls withered to nothing. But I refused to fade."
